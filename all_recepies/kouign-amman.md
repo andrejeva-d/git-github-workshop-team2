@@ -3,12 +3,11 @@
 ## Ingredients list: 
 
 - 300 grams bread flour (or all-purpose)
-- 1.5 teaspoons instant yeast
-- 0.8 teaspoons fine sea salt
 - 175 milliliters warm water (around 35°C)
-- 225 grams unsalted butter, cold
-- 150 grams granulated sugar
-- 0.5 teaspoons flaky sea salt (e.g. fleur de sel) 
+- 225 grams salted butter, cold
+- 150 grams sugar
+- 1 teaspoons fine salt
+- 1.5 teaspoons instant yeast
 
 ## **Steps:**
 
